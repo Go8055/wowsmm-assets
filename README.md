@@ -1,0 +1,1 @@
+# wowsmm-assets
